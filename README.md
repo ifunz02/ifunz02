@@ -1,0 +1,5 @@
+- 👋 Hi, I’m felix <3
+- 👀 I’m interested in telegram bot and money)
+- 🌱 I’m currently learning nothing
+- 😄 Pronouns: flex, felix, falser
+- ⚡ -   Fun fact: im friendly!
